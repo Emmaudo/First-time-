@@ -1,2 +1,2 @@
 # First-time-
-It's my pleasure been in platform of crypto Blockchain technology and BSV.
+It's my pleasure been in this platform of crypto Blockchain technology and BSV.
